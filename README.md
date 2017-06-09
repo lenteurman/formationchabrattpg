@@ -1,2 +1,3 @@
 # formationchabrattpg
-Ceci est une description non explicite du projet !
+Ceci est une description  ou pas ;,;,;;,;,
+Ca m'énerve  !!! J'y comprend rien :=
